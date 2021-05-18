@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AxelTheWolf
+- 👀 I’m interested in minecraft mods and im trying to learn code
+- 🌱 I’m currently learning making mods for minecraft
+- 📫 How to reach me my discord is = Axel_the_wolf #2880
